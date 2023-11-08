@@ -1,1 +1,1 @@
-# Gi-i-thi-u-nh-ng-thu-t-ng-Ti-n-l-n-kh-ng-ph-i-ng-i-ch-i-n-o-c-ng-bi-t-n---sodo-casino
+Giới thiệu những thuật ngữ Tiến lên không phải người chơi nào cũng biết đến - sodo casino - Những thuật ngữ Tiến lên bạn đã hiểu hết chưa? Nếu như chưa thì chắc chắn bài viết này của Sodo sẽ dành cho các bạn.   - https://sodo.wiki/thuat-ngu-tien-len/
